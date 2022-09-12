@@ -1,3 +1,1 @@
 # world-university-ranking
-
-asvave
